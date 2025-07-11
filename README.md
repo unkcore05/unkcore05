@@ -57,7 +57,7 @@
 
 - 🌐 [GitHub](https://github.com/unkcore05)  
 - 💬 Telegram: [@unkcore](https://t.me/unkcore)  
-- 🎥 YouTube — (в разработке)
+- 🎥 YouTube — (В дальнейшем)
 
 ---
 
